@@ -1,6 +1,6 @@
 :bangbang::bangbang:成人导航-色情导航网站:bangbang::bangbang:
 ==
-:fire: :point_right: 【成人色情导航网站地址】 ：https://dadiao.neocities.org
+:fire: :point_right: 【成人色情导航网站地址发布页】 ：https://dadiao.neocities.org
 ------
 :fire: :point_right: 【麻豆传媒色情网站国产AV自拍】 ：https://wz888.net
 ------
